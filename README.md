@@ -1,7 +1,7 @@
 # Sprunki 1996 🎮
 **Play Now: [sprunki 1996](https://squidki.online/sprunki-1996/)**
 
-![Sprunki 1996 Banner]((https://games.squidki.online/sprunki1996/1.png)
+![Sprunki 1996 Banner](https://games.squidki.online/sprunki1996/1.png)
 
 
 
